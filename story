@@ -3,4 +3,6 @@ A lion was once sleeping in the jungle when a mouse started running up and down 
   He was about to eat the mouse when the mouse desperately requested the lion to set him free. 
   “I promise you, I will be of great help to you someday if you save me.” 
   The lion laughed at the mouse’s confidence and let him go.
-  soon the mous e found itself on a pyramid inn eygpt and disturbed
+  soon the mous e found itself on a pyramid inn eygpt and disturbed 
+  the lion met its grandma in heaven and fell from a cloud
+  
